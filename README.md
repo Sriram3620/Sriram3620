@@ -27,7 +27,7 @@
 - 7+ industry-ready certificates from **CCBP 4.0 Academy**
 
 ## 📫 Get in Touch
-- **Email**: your.email@example.com  
+- **Email**: osriram4@gmail.com  
 - **LinkedIn**: [https://www.linkedin.com/in/sriram-maruthamuthu-772068260/]  
 - **Portfolio**: [srportfolio.ccbp.tech]  
 
